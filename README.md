@@ -10,3 +10,4 @@ Here are some ideas to get you started:-->
 - 🤔 I’m looking for help with learning new things!
 - 📫 How to reach me: mbhatt2615@gmail.com
 
+![](https://komarev.com/ghpvc/?username=Margi16&style=plastic&color=green&label=PROFILE+VIEWS)
